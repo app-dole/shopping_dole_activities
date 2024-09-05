@@ -1,0 +1,1 @@
+# shopping_dole_activities
